@@ -40,6 +40,7 @@ An intelligent and user-friendly website designed to assist Indian farmers by pr
 🏫 Sardar Patel College of Engineering  
 📧 Email: parekhtirth143@gmail.com  
 🌐 GitHub: [Tirth-maker](https://github.com/Tirth-maker)
+   Website: (https://kishansahayak2025.infinityfreeapp.com/)
 
 ---
 
